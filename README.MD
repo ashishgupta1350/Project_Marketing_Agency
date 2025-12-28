@@ -58,10 +58,3 @@ I am partnering with established organic marketing firms to fill the gap in **Pa
 
 > "Every business has competition. The goal isn't to avoid it, but to learn from the mistakes of others and out-execute the market."
 
----
-
-### How to Help You Stay on Track
-
-To move from 4 hours to 6 hours without the "stress" you mentioned, you need to treat your 12 PM - 1 PM slot as a **"Confusion Buffer."** If you feel the urge to scroll social media, use that hour to literally write down the *one* technical thing you don't understand.
-
-**Would you like me to help you draft a specific "Week 1 Learning Curriculum" for Meta Ads so you know exactly what to work on during your 8 AM - 11 AM block tomorrow?**
