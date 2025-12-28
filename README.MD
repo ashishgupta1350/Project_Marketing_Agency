@@ -1,12 +1,4 @@
----
 
-# 🚀 Project Tejasva & Co.
-
-### *The Blueprint for High-Value Performance Marketing*
-
-> "Build a profile so strong that the market recognizes the quality immediately. Transitioning from potential to high-ticket reality."
-
----
 
 ## 💎 The Vision: "The Quality Standard"
 
