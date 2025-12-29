@@ -12,3 +12,14 @@ Servitude above profits
 Underpromise -> over diliver on the underpromise (our underpromise is better than other agencies best promise) 
 Scale clients revenues -> try our best to grow the client to millions in revenues 
 Drive down clients costs (at any cost of our own) and guide clients to marketing's best practices. 
+Keep taking on clients and ask for referrals if the service is really good. 
+
+Learn:
+Leadership role
+Hiring best practices
+How to manage the first hire and subsequent hires. Build a scalable team profitably takes time
+How to manage finances in a firm
+How to allocate time to different projects
+How to win client contracts
+If the client expectations are not met, how to satisfy the clients
+
